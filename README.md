@@ -1,2 +1,0 @@
-# luxtimemedia.com
-luxtimemedia.com
