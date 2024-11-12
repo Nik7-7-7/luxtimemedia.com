@@ -1,2 +1,2 @@
-# pinnaclepartnershiplimited.com
-pinnaclepartnershiplimited.com
+# luxtimemedia.com
+luxtimemedia.com
